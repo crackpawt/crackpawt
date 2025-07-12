@@ -6,4 +6,6 @@ feelfree2 copy, remakwe  inspo or whatevs my avs im completely cool w it,, credi
   
 everything important on my [rentrry](https://rentry.co/mollylala)
 
-C+H,, INT, sign my [ata](https://mollylala.atabook.org/) yadayada, spamming/having a convo on my ata is fine ^_^
+C+H,, INT, sign my [ata](https://mollylala.atabook.org/) yadayada, spamming/having a convo w me on my ata is fine
+
+<img src="https://i.postimg.cc/vZwrTkGG/IMG-1506.gif" width="200" height="200"/></p>
