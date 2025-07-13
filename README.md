@@ -9,3 +9,4 @@ everything important on my [rentrry](https://rentry.co/mollylala)
 u shld tots C+H,, INT, sign my [ata](https://mollylala.atabook.org/) yadayada, spamming/having a convo w me on my ata is fine
 
 <img src="https://i.postimg.cc/vZwrTkGG/IMG-1506.gif" width="200" height="200"/></p>
+i lauv 2 hug nd kiss my friends 
