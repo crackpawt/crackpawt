@@ -1,6 +1,9 @@
 
 <div align="center">
 <img src="https://i.postimg.cc/9M9L7C5Q/IMG-1505.gif" width="700" height="700"/></p>
+ 
+  ![](https://komarev.com/ghpvc/?username=crackpawt&color=d6b66c&style=plastic&label=subjects)
+  
 feelfree2 copy, remakwe  inspo or whatevs my avs ,, crediting is optional it isnt rhat srs 2 me elohel
 ,
   
