@@ -4,7 +4,7 @@
  
   ![](https://komarev.com/ghpvc/?username=crackpawt&color=d6b66c&style=plastic&label=^__^)
   
-feelfree2 copy, remakwe, take  inspo or whatevs my avs ,, crediting is optional it isnt rhat srs 2 me elohel
+feelfree2 copy, remakwe, take  inspo or whatevs my avs ,, it isnt rhat srs 2 me elohel
 ,
   
 everything important on my [rentrry](https://rentry.co/mollylala)
