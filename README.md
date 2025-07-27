@@ -21,3 +21,5 @@ u shld tots C+H,, INT, sign my [ata](https://mollylala.atabook.org/) yadayada, s
 as uncaring as i usually am i get ovrwhelmed, nd i will hop off/move away if i do lawl,
 
 hh/hb ponies that int w me will get blocked/hidden dooonttt caaaareee
+
+rarely in public chat, if i didnt notice smthng u said 2 me whisper it 
