@@ -16,12 +16,12 @@ usually running around as maple taffy or timekeeper i also LOOVEEEEE the tbd
 <img src="https://i.postimg.cc/vZwrTkGG/IMG-1506.gif" width="200" height="200"/></p>
 
  i block VERY freely, if i block you, its personal and i dont fw ur vibe, or u're just someone i dont wanna interact with lol
- 
-as uncaring as i usually am i get ovrwhelmed, nd i will hop off/move away if i do lawl,
 
 hh/hb ponies that int w me will get blocked/hidden dooonttt caaaareee
 
-rarely in public chat, if i didnt notice smthng u said 2 me whisper it 
+w2i mainly cause im offtab alot and or making ponies nd i sit in prsnl chat alot more
+
+feel free 2 int w me even if im w my friends 
 
 ^_^
 -
