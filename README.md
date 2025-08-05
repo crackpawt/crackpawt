@@ -21,7 +21,7 @@ hh/hb ponies that int w me will get blocked/hidden dooonttt caaaareee
 
 w2i mainly cause im offtab alot and or making ponies nd i sit in prsnl chat alot more
 
-feel free 2 int w me even if im w my friends 
+dniuf usually js means i dont feel like talking to people nd wanna mindlessly drool at my screen
 
 ^_^
 -
