@@ -17,7 +17,7 @@ usually running around as maple taffy or timekeeper i also LOOVEEEEE the tbd
 
  i block VERY freely, if i block you, its personal and i dont fw ur vibe, or u're just someone i dont wanna interact with lol
 
-hh/hb ponies that int w me will get blocked/hidden dooonttt caaaareee
+hh/hb ponies that int w me will get blocked/hidden dooonttt caaaareee i can smell u guys through the screen
 
 w2i mainly cause im offtab alot and or making ponies nd i sit in prsnl chat alot more
 
