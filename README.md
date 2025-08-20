@@ -7,7 +7,7 @@
 feelfree2 take inspo or whatevs ,, it isnt rhat srs 2 me elohel (dont repost w/o credit idk
 ,
 
-u shld tots C+H,, INT, sign my [ata](https://mapletaffy.atabook.org/) yadayada, spamming/having a convo w me on my ata is fine
+ C+H is always cool C+H me twin... also INT nd sign my [ata](https://mapletaffy.atabook.org/) while u're at it, spamming/having a convo w me on my ata is fine
 
 i change my pony alot but my github should always be linked
 
