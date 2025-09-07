@@ -17,7 +17,7 @@ i change my pony alot but my github should always be linked
 
  i block VERY freely, if i block you, its personal and i dont fw ur vibe, or u're just someone i dont wanna interact with lol
 
-hh/hb fans will get blocked/hidden ON SIIIIGGHTHHHTTT dooonttt caaaareee i can smell u guys through the screen
+hh/hb fans will get blocked/hidden 
 
 w2i mainly cause im offtab alot and or making ponies nd i sit in prsnl chat alot more
 
