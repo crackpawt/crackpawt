@@ -32,3 +32,5 @@ she/it/any,, cupio + lesbian,
 FINN/ENG,, 6teen
 
 i looove cookie run, transformers, madness combat, ultrakill, dsaf, dialtown and like other styff lalala
+
+im an overlord fiend always been will forever be lalala
