@@ -31,4 +31,4 @@ she/it/any,, cupio + lesbian,
 
 FINN/ENG,, 6teen
 
-i looove cookie run, transformers, madness combat, dsaf, dialtown and like other styff lalala
+i looove cookie run, transformers, madness combat, ultrakill, dsaf, dialtown and like other styff lalala
