@@ -13,7 +13,7 @@ i change my pony alot but my github should always be linked
 
 ^_^
 -
-<img src="https://i.postimg.cc/vZwrTkGG/IMG-1506.gif" width="200" height="200"/></p>
+<img src="https://i.postimg.cc/63pn5PgP/lala.gif" width="200" height="200"/></p>
 
  i block VERY freely, if i block you, its personal and i dont fw ur vibe, or u're just someone i dont wanna interact with lol
 
@@ -30,3 +30,5 @@ dniuf usually js means i dont feel like talking to people nd wanna mindlessly dr
 she/it/any,, cupio + lesbian, 
 
 FINN/ENG,, 6teen
+
+i looove cookie run, transformers, madness combat, dsaf, dialtown and like other styff lalala
