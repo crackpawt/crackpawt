@@ -1,6 +1,6 @@
 
 <div align="center">
-<img src="https://i.postimg.cc/9M9L7C5Q/IMG-1505.gif" width="700" height="700"/></p>
+<img src="https://i.postimg.cc/rmJ54RXN/IMG-3284.gif" width="300" height="400"/></p>
  
   ![](https://komarev.com/ghpvc/?username=crackpawt&color=d6b66c&style=plastic&label=^__^)
   
@@ -22,5 +22,3 @@ hh/hb fans will get blocked/hidden
 w2i mainly cause im offtab alot and or making ponies nd i sit in prsnl chat alot more
 
 dniuf usually js means i dont feel like talking to people nd wanna mindlessly drool at my screen
-
-<img src="https://i.postimg.cc/yNY6fhnT/IMG-1962.png" width="700" height="700"/></p>
