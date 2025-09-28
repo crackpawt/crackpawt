@@ -23,14 +23,4 @@ w2i mainly cause im offtab alot and or making ponies nd i sit in prsnl chat alot
 
 dniuf usually js means i dont feel like talking to people nd wanna mindlessly drool at my screen
 
-^_^
--
 <img src="https://i.postimg.cc/yNY6fhnT/IMG-1962.png" width="700" height="700"/></p>
-
-she/it/any,, cupio + lesbian, 
-
-FINN/ENG,, 6teen
-
-i looove cookie run, transformers, madness combat, ultrakill, dsaf, dialtown and like other styff lalala
-
-im an overlord fiend always been will forever be lalala
