@@ -11,6 +11,8 @@ feelfree2 take inspo or whatevs ,, it isnt rhat srs 2 me elohel (dont repost w/o
 
 i change my pony alot but my github should always be linked
 
+listen to my [and one playlist](https://soundcloud.com/mostly-straight-pilot/sets/and-one-shuffle?si=57bc54bce3884fe0a41bf6a34d7a1f69&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)!!!!!!!!!! i love and one and im really passionate about my love for them
+
 ^_^
 -
 <img src="https://i.postimg.cc/63pn5PgP/lala.gif" width="200" height="200"/></p>
