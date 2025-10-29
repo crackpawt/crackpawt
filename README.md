@@ -24,3 +24,5 @@ hh/hb fans will get blocked/hidden
 w2i mainly cause im offtab alot and or making ponies nd i sit in prsnl chat alot more
 
 dniuf usually js means i dont feel like talking to people nd wanna mindlessly drool at my screen
+
+feel free to whisp me to check my ata if i dont see a sign u sent!!!! 
