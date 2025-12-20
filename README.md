@@ -17,8 +17,6 @@ my [and one playlist](https://soundcloud.com/mostly-straight-pilot/sets/and-one-
 <div align="center">
 <img src="https://i.postimg.cc/90nbW44B/Untitled2213-20251220043822.png"width="800" height="200" /></p>
  
-^_^
--
 <img src="https://i.postimg.cc/63pn5PgP/lala.gif" width="200" height="200"/></p>
 
 **block freely**, ~~if i block you, its personal and i dont fw ur vibe, or u're just someone i dont wanna interact with lol~~
