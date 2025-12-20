@@ -4,7 +4,7 @@
   ![](https://komarev.com/ghpvc/?username=crackpawt&color=d6b66c&style=plastic&label=^__^)
 
 <div align="center">
-<img src="https://64.media.tumblr.com/c9ee61940bdbd9119e3f57ed7e953771/424db483e94f7156-83/s400x600/64b0c7e61aec4925dd1e3e2c6a44ad881586b4db.pnj"width="800" height="300" /></p>
+<img src="https://64.media.tumblr.com/1c420854e663eca25e641e87091c53fd/8433ae5086b26f1d-3d/s400x600/f617ff7f9d6db021ca59a5c2674586dbae949998.pnj"width="800" height="300" /></p>
   
 feelfree2 take inspo or whatevs ,, it isnt rhat srs 2 me elohel (dont repost w/o credit idk
 ,
