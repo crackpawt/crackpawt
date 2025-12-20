@@ -20,4 +20,9 @@ my [and one playlist](https://soundcloud.com/mostly-straight-pilot/sets/and-one-
 <img src="https://i.postimg.cc/90nbW44B/Untitled2213-20251220043822.png"width="800" height="200" /></p>
 
 
- cookie run (obノcrk)⸝⸝ ⠀lps alive!!⸝⸝ ⠀transformers (mtmteノll, tfoノpノa)⸝⸝ ⠀~~arcane..~~⸝⸝ ⠀**dialtown⸝⸝ ⠀dsaf⸝⸝ ⠀ultrakill⸝⸝ ⠀madness combat‎**
+cookie run (obノcrk)⸝⸝ ⠀lps alive!!⸝⸝ ⠀transformers (mtmteノll, tfoノpノa)⸝⸝ ⠀~~arcane..~~⸝⸝ ⠀**dialtown⸝⸝ ⠀dsaf⸝⸝ ⠀ultrakill⸝⸝ ⠀madness combat‎** 
+
+ · · ─ ·ʚɞ· ─ · ·
+ -
+<div align="center">
+<img src="https://64.media.tumblr.com/1c420854e663eca25e641e87091c53fd/8433ae5086b26f1d-3d/s400x600/f617ff7f9d6db021ca59a5c2674586dbae949998.pnj"width="800" height="300" /></p>
