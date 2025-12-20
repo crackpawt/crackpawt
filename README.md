@@ -1,8 +1,9 @@
-
 <div align="center">
-<img src="https://i.postimg.cc/rmJ54RXN/IMG-3284.gif" width="300" height="400"/></p>
+<img src="https://i.postimg.cc/1Xwh6ZpS/Untitled2214-20251220041040.png"width="800" height="600" /></p>
  
   ![](https://komarev.com/ghpvc/?username=crackpawt&color=d6b66c&style=plastic&label=^__^)
+
+
   
 feelfree2 take inspo or whatevs ,, it isnt rhat srs 2 me elohel (dont repost w/o credit idk
 ,
@@ -24,5 +25,3 @@ hh/hb fans will get blocked/hidden
 w2i mainly cause im offtab alot and or making ponies nd i sit in prsnl chat alot more
 
 dniuf usually js means i dont feel like talking to people nd wanna mindlessly drool at my screen
-
-feel free to whisp me to check my ata if i dont see a sign u sent!!!! 
