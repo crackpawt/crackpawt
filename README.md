@@ -13,16 +13,9 @@ feelfree2 take inspo or whatevs ,, it isnt rhat srs 2 me elohel (dont repost w/o
 
 github should always be linked
 
+**block freely**, ~~hh/hb fans will get blocked/hidden~~
+
 my [and one playlist](https://soundcloud.com/mostly-straight-pilot/sets/and-one-shuffle?si=57bc54bce3884fe0a41bf6a34d7a1f69&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing) i love and one and im really passionate about my love for them
 <div align="center">
 <img src="https://i.postimg.cc/90nbW44B/Untitled2213-20251220043822.png"width="800" height="200" /></p>
  
-<img src="https://i.postimg.cc/63pn5PgP/lala.gif" width="200" height="200"/></p>
-
-**block freely**, ~~if i block you, its personal and i dont fw ur vibe, or u're just someone i dont wanna interact with lol~~
-
-hh/hb fans will get blocked/hidden 
-
-w2i mainly cause im offtab alot and or making ponies nd i sit in prsnl chat alot more
-
-dniuf usually js means i dont feel like talking to people nd wanna mindlessly drool at my screen
