@@ -15,7 +15,7 @@ github should always be linked
 
 **block freely**, ~~hh/hb fans will get blocked/hidden~~ 
 
-if u're weirdly deep into the maddie nolen hate train **dni, no exceptions** i love maddie ALOT, shes me and i love her so so much and i cant stomach listening to people bitch nd whine about her more than i alr have to slash serius slash not joe king how i keep the rent low gif
+if u're weirdly deep into the maddie nolen hate train **dni, no exceptions** i love maddie ALOT, shes me and i love her so so much and i cant stomach listening to people bitch nd whine about her more than i alr have to slash serius slash not joe king 
 
 my [and one playlist](https://soundcloud.com/mostly-straight-pilot/sets/and-one-shuffle?si=57bc54bce3884fe0a41bf6a34d7a1f69&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing) i love and one and im really passionate about my love for them
 <div align="center">
