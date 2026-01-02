@@ -9,7 +9,7 @@
 feelfree2 take inspo or whatevs ,, it isnt rhat srs 2 me elohel (dont repost w/o credit idk
 ,
 
- C+H is always cool C+H me twin... also INT nd sign my [ata](https://mapletaffy.atabook.org/) while u're at it, spamming/having a convo w me on my ata is fine
+ C+H is always cool even when im w my friennds C+H me twin... W2I is cool also INT nd sign my [ata](https://mapletaffy.atabook.org/) while u're at it, spamming/having a convo w me on my ata is fine
 
 github should always be linked
 
@@ -18,9 +18,12 @@ github should always be linked
 my [and one playlist](https://soundcloud.com/mostly-straight-pilot/sets/and-one-shuffle?si=57bc54bce3884fe0a41bf6a34d7a1f69&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing) i love and one and im really passionate about my love for them
 <div align="center">
 <img src="https://i.postimg.cc/90nbW44B/Untitled2213-20251220043822.png"width="800" height="200" /></p>
+ 
+fandoms int
+-
+cookie run (obノcrk)⸝⸝ ⠀lps alive!!⸝⸝ ⠀transformers (mtmteノll, tfoノpノa)⸝⸝ ⠀arcane⸝⸝ ⠀dialtown⸝⸝ ⠀dsaf⸝⸝ ⠀ultrakill⸝⸝ ⠀madness combat⸝⸝ ⠀endzoneノLoT‎ *nd whatever fandom my pony is from*
 
-
-cookie run (obノcrk)⸝⸝ ⠀lps alive!!⸝⸝ ⠀transformers (mtmteノll, tfoノpノa)⸝⸝ ⠀~~arcane..~~⸝⸝ ⠀**dialtown⸝⸝ ⠀dsaf⸝⸝ ⠀ultrakill⸝⸝ ⠀madness combat‎** 
+*no rp*,,,, matching ponies is so cool hi pls
 
  · · ─ ·ʚɞ· ─ · ·
  -
