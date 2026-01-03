@@ -9,15 +9,16 @@
 feelfree2 take inspo or whatevs ,, it isnt rhat srs 2 me elohel (dont repost w/o credit idk
 ,
 
- C+H is always cool even when im w my friennds C+H me twin... W2I is cool also INT nd sign my [ata](https://mapletaffy.atabook.org/) while u're at it, spamming/having a convo w me on my ata is fine
-
-github should always be linked
+ C+H is always cool even when im w my friennds C+H me twin... W2I + INT nd sign my [ata](https://mapletaffy.atabook.org/), spamming/having a convo on my ata is fine
 
 **block freely**, ~~hh/hb ponies will get blocked/hidden~~ 
 
-if u're weirdly deep into the maddie nolen hate train **dni, no exceptions** i love maddie ALOT, shes me and i love her so so much haters dni slash serius slash not joe king,, ~~if u js dont like her idc,, i mean like.. the group of people who start foaming at the mouth just at the mention of my bbeloved maddie~~
+if u're weirdly deep into the maddie nolen hate train **dni, no exceptions** i love maddie ALOT, shes me and i love her so much big time haters dni slash serius slash not joe king,, ~~if u dont like her or dislike her a regular amount i really dont care or mind,, i mean like.. the people weirdly passionate about hating on her~~
+
+if u're here bcs i crowned u.. hllo u have such a pretty pony
 
 my [and one playlist](https://soundcloud.com/mostly-straight-pilot/sets/and-one-shuffle?si=57bc54bce3884fe0a41bf6a34d7a1f69&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing) i love and one and im really passionate about my love for them
+
 <div align="center">
 <img src="https://i.postimg.cc/90nbW44B/Untitled2213-20251220043822.png"width="800" height="200" /></p>
  
@@ -26,6 +27,8 @@ fandoms int
 cookie run (obノcrk)⸝⸝ ⠀lps alive!!⸝⸝ ⠀transformers (mtmteノll, tfoノpノa)⸝⸝ ⠀arcane⸝⸝ ⠀dialtown⸝⸝ ⠀dsaf⸝⸝ ⠀ultrakill⸝⸝ ⠀madness combat⸝⸝ ⠀endzoneノLoT‎ *nd whatever fandom my pony is from*
 
 *no rp*,,,, matching ponies is so cool hi pls
+
+
 
  · · ─ ·ʚɞ· ─ · ·
  -
