@@ -15,7 +15,7 @@ feelfree2 take inspo or whatevs ,, it isnt rhat srs 2 me elohel (dont repost w/o
 
 if u're weirdly deep into the maddie nolen hate train **dni, no exceptions** i love maddie ALOT, shes me and i love her so much big time haters dni slash serius slash not joe king,, ~~if u dont like her or dislike her a regular amount i really dont care or mind,, i mean like.. the people weirdly passionate about hating on her~~
 
-if u're here bcs i crowned u.. hllo u have such a pretty pony
+if u cover me i'll move and sit my fat ass ontop of u
 
 my [and one playlist](https://soundcloud.com/mostly-straight-pilot/sets/and-one-shuffle?si=57bc54bce3884fe0a41bf6a34d7a1f69&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing) i love and one and im really passionate about my love for them
 
