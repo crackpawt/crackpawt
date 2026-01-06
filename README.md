@@ -9,15 +9,15 @@
 feelfree2 take inspo or whatevs ,, it isnt rhat srs 2 me elohel (dont repost w/o credit idk
 ,
 
- C+H is always cool even when im w my friennds C+H me twin... W2I + INT nd sign my [ata](https://mapletaffy.atabook.org/), spamming/having a convo on my ata is fine
+if i dont answer,, W2I i might be offtab or away from my screen
+
+ C+H is always cool even when im w my friennds C+H me twin... + INT nd sign my [ata](https://mapletaffy.atabook.org/), spamming/having a convo on my ata is fine
 
 **block freely**, ~~hh/hb ponies will get blocked/hidden~~ 
 
-if u're weirdly deep into the maddie nolen hate train **dni, no exceptions** i love maddie ALOT, shes me and i love her so much big time haters dni slash serius slash not joe king,, ~~if u dont like her or dislike her a regular amount i really dont care or mind,, i mean like.. the people weirdly passionate about hating on her~~
+if u're *weirdly* deep into the maddie nolen hate train **dni, no exceptions** i love maddie ALOT, shes me and i love her so much big time haters dni slash serius slash not joe king,, ~~if u dont like her or dislike her a regular amount thats fine i dont care or mind,, im talking about the people weirdly passionate about hating on her~~
 
 if u cover me i'll move and sit my fat ass ontop of u
-
-my [and one playlist](https://soundcloud.com/mostly-straight-pilot/sets/and-one-shuffle?si=57bc54bce3884fe0a41bf6a34d7a1f69&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing) i love and one and im really passionate about my love for them
 
 <div align="center">
 <img src="https://i.postimg.cc/90nbW44B/Untitled2213-20251220043822.png"width="800" height="200" /></p>
