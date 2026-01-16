@@ -15,7 +15,7 @@ if i dont answer,, $\large{\textsf{W2I}}$ i might be offtab or away from my scre
 
 $\large{\textsf{i block freely}}$, ~~hh/hb ponies will get blocked/hidden~~ 
 
-$\large{\textsf{if u're weirdly deep into the maddie nolen hate train dni, no exceptions}}$ i love maddie ALOT, shes me and i love her so much big time haters dni slash serius slash not joe king,, $\tiny{\textsf{if u dont like her or dislike her a regular amount thats fine i dont care or mind,, im talking about the people weirdly passionate about hating on her}}$
+[**DNI**](https://rentry.co/mollysbigfatdni)
 
 if u cover me i'll move and sit my fat ass ontop of u
 
