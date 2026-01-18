@@ -22,6 +22,7 @@ $\large{\textsf{i block freely}}$, ~~hh/hb ponies will get blocked/hidden~~
 - ndk
 - bfkn
 <div align="left">
+</details>
 
 <div align="center">
 if u cover me i'll move and sit my fat ass ontop of u
