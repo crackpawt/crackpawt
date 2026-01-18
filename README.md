@@ -22,7 +22,7 @@ if i dont answer,, $\large{\textsf{W2I}}$ i might be offtab or away from my scre
 - self diagnose freaks
 - hazbin/helluva or **any** media by vivzie
 - $\color{#E0DFA8}{\textup{people who hate me or my friends}}$ my friends r the best dont talk to me if u hate them doooont care dooooooooont caaareee!'
-- if my friends or i dislike YOU yeah little 360 sorry u have to be in atleast okay with my friends cause they're my whole  world
+- if my friends or i dislike YOU sorry u have to be in atleast okay with my friends cause they're my whole  world
 - grok israelgbt cai slop slurpers gag
 - $\color{#D9C057}{\textup{if u’re weirdly deep into the maddie nolen hate train}}$,,, $\color{#E0DFA8}{\textup{no exceptions i love maddie ALOT}}$, shes me and i love her so much big time haters dni slash serius slash not joe king,, (~~does not include people people who js dont like her or hate her a normal amount~~)
 <div align="left">
