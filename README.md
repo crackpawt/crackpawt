@@ -13,25 +13,24 @@ if i dont answer,, $\large{\textsf{W2I}}$ i might be offtab or away from my scre
 
 **C+H is always cool** even when im w my friennds C+H me twin... + **INT nd sign my [ata](https://mapletaffy.atabook.org/),** spamming/having a convo on my ata is fine
 
-$\large{\textsf{i block freely}}$, ~~hh/hb ponies will get blocked/hidden~~
 
 <details>
-  <summary>DNI</summary>
+  <summary> $\huge{\textsf{DNI}}$ </summary>
  <div align="left">
   
-- basic dni (transphobes homophobes racists ect)
+- $\color{#E0DFA8}{\textup{basic dni}}$ (transphobes homophobes racists ect)
 - self diagnose freaks
-- hazbin/helluva or any media by vivzie
-- people who hate me or my friends my friends r the best dont talk to me if u hate them doooont care dooooooooont caaareee!'
+- hazbin/helluva or **any** media by vivzie
+- $\color{#E0DFA8}{\textup{people who hate me or my friends}}$ my friends r the best dont talk to me if u hate them doooont care dooooooooont caaareee!'
 - if u talk shit about me AMEN
-- if u’re weirdly deep into the maddie nolen hate train, no exceptions i love maddie ALOT, shes me and i love her so much big time haters dni slash serius slash not joe king,, (does not include people people who js dont like her or hate her a normal amount)
+- if u’re weirdly deep into the maddie nolen hate train, $\color{#E0DFA8}{\textup{no exceptions i love maddie ALOT}}$, shes me and i love her so much big time haters dni slash serius slash not joe king,, (does not include people people who js dont like her or hate her a normal amount)
 
-  I BLOCK FREELY!!!!! idc if u didnt do anything idccc i block whoever i want ahahahahahahahahahaahahahah
+  $\color{#E0DFA8}{\textup{I BLOCK FREELY!!!!!}}$ idc if u didnt do anything idccc i block whoever i want ahahahahahahahahahaahahahah
 <div align="left">
 </details>
 
 <div align="center">
-if u cover me i'll move and sit my fat ass ontop of u
+
 
 <div align="center">
 <img src="https://i.postimg.cc/90nbW44B/Untitled2213-20251220043822.png"width="800" height="200" /></p>
