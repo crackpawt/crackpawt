@@ -13,10 +13,17 @@ if i dont answer,, $\large{\textsf{W2I}}$ i might be offtab or away from my scre
 
 **C+H is always cool** even when im w my friennds C+H me twin... + **INT nd sign my [ata](https://mapletaffy.atabook.org/),** spamming/having a convo on my ata is fine
 
-$\large{\textsf{i block freely}}$, ~~hh/hb ponies will get blocked/hidden~~ 
+$\large{\textsf{i block freely}}$, ~~hh/hb ponies will get blocked/hidden~~
 
-[**DNI**](https://rentry.co/mollysbigfatdni)
+<details>
+  <summary>DNI</summary>
+ <div align="left">
+  
+- ndk
+- bfkn
+<div align="left">
 
+<div align="center">
 if u cover me i'll move and sit my fat ass ontop of u
 
 <div align="center">
