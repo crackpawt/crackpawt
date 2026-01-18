@@ -19,8 +19,14 @@ $\large{\textsf{i block freely}}$, ~~hh/hb ponies will get blocked/hidden~~
   <summary>DNI</summary>
  <div align="left">
   
-- ndk
-- bfkn
+- basic dni (transphobes homophobes racists ect)
+- self diagnose freaks
+- hazbin/helluva or any media by vivzie
+- people who hate me or my friends my friends r the best dont talk to me if u hate them doooont care dooooooooont caaareee!'
+- if u talk shit about me AMEN
+- if u’re weirdly deep into the maddie nolen hate train, no exceptions i love maddie ALOT, shes me and i love her so much big time haters dni slash serius slash not joe king,, (does not include people people who js dont like her or hate her a normal amount)
+
+  I BLOCK FREELY!!!!! idc if u didnt do anything idccc i block whoever i want ahahahahahahahahahaahahahah
 <div align="left">
 </details>
 
