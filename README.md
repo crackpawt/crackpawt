@@ -25,14 +25,20 @@ if i dont answer,, $\large{\textsf{W2I}}$ i might be offtab or away from my scre
 - if my friends or i dislike YOU sorry u have to be in atleast okay with my friends cause they're my whole  world
 - grok israelgbt cai slop slurpers gag
 - $\color{#D9C057}{\textup{if u’re weirdly deep into the maddie nolen hate train}}$,,, $\color{#E0DFA8}{\textup{no exceptions i love maddie ALOT}}$, shes me and i love her so much big time haters dni slash serius slash not joe king,, (~~does not include people people who js dont like her or hate her a normal amount~~)
+- people under 15
 <div align="left">
+
 
  <div align="center">
   $\color{#E0DFA8}{\textup{I BLOCK FREELY!!!!!}}$ idc if u didnt do anything idccc i block whoever i want ahahahahahahahahahaahahahah
 
 </details>
 
-
+<details>
+  <summary> $\huge{\textsf{BYI}}$ </summary>
+ <div align="left">
+  - this is a wip
+</details>
 
 
 <div align="center">
