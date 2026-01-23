@@ -37,7 +37,10 @@ if i dont answer,, $\large{\textsf{W2I}}$ i might be offtab or away from my scre
 <details>
   <summary> $\huge{\textsf{BYI}}$ </summary>
  <div align="left">
-  - this is a wip
+  
+- I'm generally pretty ill, i deal w it myself but if u do add me theres moments its more obvious i cant do shit about that i fear
+- I'm bad at getting close with people so dont have ur expectations high
+- i'm pretty oblivious nd if u have issues w me i rather u solve them out w me nd tell me i did smthng wrong
 </details>
 
 
