@@ -51,7 +51,7 @@ if i dont answer,, $\large{\textsf{W2I}}$ i might be offtab or away from my scre
  
 $\Huge{\textsf{fandoms int}}$ 
 
-$\color{#E0DFA8}{\textup{cookie run (obノcrk)⸝⸝ ⠀arcane⸝⸝ ⠀transformers (mtmteノll}}$, tfoノpノa )⸝⸝ ⠀lps alive!!⸝⸝ ⠀dialtown⸝⸝ ⠀dsaf⸝⸝ ⠀ultrakill⸝⸝ ⠀madness combat⸝⸝ ⠀endzoneノLoT‎ *nd whatever fandom my pony is from*
+$\color{#E0DFA8}{\textup{cookie run (obノcrk)⸝⸝ ⠀arcane⸝⸝ dandys world⸝⸝ ⠀transformers (mtmteノll}}$, tfoノpノa )⸝⸝ ⠀lps alive!!⸝⸝ ⠀dialtown⸝⸝ ⠀dsaf⸝⸝ ⠀ultrakill⸝⸝ ⠀madness combat⸝⸝ ⠀endzoneノLoT‎ *nd whatever fandom my pony is from*
 
 $\color{#D9C057}{\textup{matching ponies is so cool hi pls}}$
 
