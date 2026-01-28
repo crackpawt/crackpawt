@@ -19,7 +19,7 @@ if i dont answer,, $\large{\textsf{W2I}}$ i might be offtab or away from my scre
  <div align="left">
   
 - $\color{#E0DFA8}{\textup{basic dni}}$ (transphobes homophobes racists ect)
-- darkshippers nd ESPECIALLY pro contact
+- pro/darkshippers nd ESPECIALLY pro contact
 - self diagnosing
 - hazbin/helluva or **any** media by vivzie
 - $\color{#E0DFA8}{\textup{people who hate me or my friends}}$ my friends r the best dont talk to me if u hate them doooont care dooooooooont caaareee!'
