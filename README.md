@@ -44,9 +44,9 @@ if i dont answer,, $\large{\textsf{W2I}}$ i might be offtab or away from my scre
 - i'm pretty oblivious nd if u have issues w me i rather u solve them w me nd tell me i did smthng wrong
 - I dont do rp, only with friends as a joke, but no serious roleplay.
 - i like maddie nolen alot
-- im pretty sensitive, if i get the feeling u hate me or you js straight up do hate me i will prolly disregard u nd any attempts u make at interacting w me beyond that lol (this also just really depends on my mood, try next tuesday idk crine emoji)
+- im not sensitive but if i get the feeling u hate me or you js straight up do hate me i will prolly disregard u nd any attempts u make at interacting w me beyond that lol (this also just really depends on my mood, try next tuesday idk crine emoji)
 - dniuf js usually means i dont feel like interacting w anyone but my friends, or im doing smthng nd dont wanna check messages, if i have dniuf nd u arent my friend nd int w me nd i'll js ignore u no big deal
-- im pretty evil on my github but im js protective over my really fragile emotions,, if u're just nice nd not on my dni i PROOOMMY we're cool nd i love meeting new people
+- im pretty evil on my github but im js protective over my really fragile emotions,, if u're just nice nd not on my dni i PROOOMMY we're cool nd i LOOOOOVE meeting new people
 </details>
 
 
