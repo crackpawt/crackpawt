@@ -3,6 +3,8 @@
  
   ![](https://komarev.com/ghpvc/?username=crackpawt&color=7072a0&style=plastic&label=^__^)
 
+<img src="https://64.media.tumblr.com/a54f72693a1b151f0ae18b8408459a2d/15c94f87d2b3e7fd-ab/s75x75_c1/5343e175357712ab17b7e86fd3175d939e3f3429.pnj"> <img src="https://64.media.tumblr.com/e44baa414ee41485e5dfec5049f5a420/15c94f87d2b3e7fd-c8/s75x75_c1/ac83a42c237215cd9a36dd5a6c630cb745850422.pnj"> <img src="https://64.media.tumblr.com/c43d3ae8b6ce483c07b69afde94cf550/15c94f87d2b3e7fd-f7/s75x75_c1/0cea54a4145a94946b2623039d9891c6ff25ffd2.pnj">
+
 <div align="center">
 <img src="https://64.media.tumblr.com/1c420854e663eca25e641e87091c53fd/8433ae5086b26f1d-3d/s400x600/f617ff7f9d6db021ca59a5c2674586dbae949998.pnj"width="800" height="300" /></p>
 
