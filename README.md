@@ -19,8 +19,9 @@
 - pro/darkshippers nd ESPECIALLY pro contact
 - self diagnosing
 - hazbin/helluva or **any** media by vivzie
-- $\color{#7072a0}{\textup{people who hate me or my friends}}$ my friends r the best dont talk to me if u hate them doooont care dooooooooont caaareee!'
+- $\color{#7072a0}{\textup{people who hate my friends}}$ my friends r the best dont talk to me if u hate them doooont care dooooooooont caaareee!'
 - if my friends or i dislike you sorry u have to be atleast okay with my friends cause they're my whole  world
+- if u hate/dislike me DUUUUHHHH dont talk to me dont interact with me dont sit near me anyhthing 
 - grok shitgbt cai slop slurpers gag
 - $\color{#7072a0}{\textup{if u’re weirdly deep into the maddie nolen hate train}}$,,, $\color{#7072a0}{\textup{no exceptions i love maddie ALOT}}$, shes me and i love her so much big time haters dni slash serius slash not joe king,, (~~does not include people people who js dont like her or hate her a normal amount~~)
 - people under 15
