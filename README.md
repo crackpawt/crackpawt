@@ -53,6 +53,7 @@
  <div align="left">
   
 - **feelfree2 take inspo or whatevs ,,** it isnt rhat srs 2 me elohel (dont repost w/o credit idk
+- IF U DO TAKE INSPO pls share i wanna see it i love knowing people took inspo from me nd seeing what they came up with
 - if i dont answer,, $\large{\textsf{W2I}}$ i might be offtab or away from my screen
 - **C+H is always cool** even when im w my friennds C+H me twin... + **INT nd sign my [ata](https://mapletaffy.atabook.org/),** spamming/having a convo on my ata is fine
 - $\color{#7072a0}{\textup{matching ponies is so cool hi pls i love matching}}$
