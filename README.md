@@ -1,11 +1,8 @@
 <div align="center">
-work in progress this whole thing shut up
-
-
+<img src="https://i.postimg.cc/4dR1pM5s/Untitled2436-20260209120947.png"width="800" height="600" /></p>
  
-  ![](https://komarev.com/ghpvc/?username=crackpawt&color=864446&style=plastic&label=^__^)
+  ![](https://komarev.com/ghpvc/?username=crackpawt&color=864446&style=plastic&label=🦐🦐)
 
-<img src="https://64.media.tumblr.com/a54f72693a1b151f0ae18b8408459a2d/15c94f87d2b3e7fd-ab/s75x75_c1/5343e175357712ab17b7e86fd3175d939e3f3429.pnj"> <img src="https://64.media.tumblr.com/e44baa414ee41485e5dfec5049f5a420/15c94f87d2b3e7fd-c8/s75x75_c1/ac83a42c237215cd9a36dd5a6c630cb745850422.pnj"> <img src="https://64.media.tumblr.com/c43d3ae8b6ce483c07b69afde94cf550/15c94f87d2b3e7fd-f7/s75x75_c1/0cea54a4145a94946b2623039d9891c6ff25ffd2.pnj">
 
 <div align="center">
 
@@ -14,18 +11,16 @@ work in progress this whole thing shut up
 
 
 <details>
-  <summary> $\huge{\textsf{DNI}}$ </summary>
+  <summary> $\huge{\textsf{DO NOT INT}}$ </summary>
  <div align="left">
-  
-- $\color{#864446}{\textup{basic dni (transphobes homophobes racists ect)}}$
-- pro/darkshippers nd ESPECIALLY pro contact
-- self diagnosing
-- hazbin/helluva or **any** media by vivzie
-- $\color{#b65425}{\textup{people who hate my friends my friends r the best dont talk to me if u hate them doooont care dooooooooont caaareee!'}}$
-- if u hate/dislike me DUUUUHHHH dont talk to me dont interact with me dont sit near me anyhthing 
-- grok shitgbt cai slop slurpers gag
-- $\color{#6c2c3a}{\textup{if u’re weirdly deep into the maddie nolen hate train}}$,,, $\color{#b65425}{\textup{no exceptions i love maddie ALOT}}$, shes me and i love her so much big time haters dni slash serius slash not joe king,, (~~does not include people people who js dont like her or hate her a normal amount~~)
-- people under 15
+
+- basic dni
+- pro/darkshippers
+- hazbin/helluva fans / vivzie supporters
+- if u hate me or my friends doooont caaaareeeeeee
+- grok chatgpt ai slop users
+- people weirdly deep into the maddie nolen hate train /serious (doesnt include people who js dont like her or hate her a normal amount)
+- under 15
 <div align="left">
 
 
@@ -35,43 +30,34 @@ work in progress this whole thing shut up
 </details>
 
 <details>
-  <summary> $\huge{\textsf{BYI}}$ </summary>
+  <summary> $\huge{\textsf{B4 U INT}}$ </summary>
  <div align="left">
   
-- I'm generally pretty ill, i deal w it myself but if u do add me theres moments its more obvious
-- I'm bad at getting close with people so dont have ur expectations high
-- i'm pretty oblivious nd if u have issues w me i rather u solve them w me nd tell me i did smthng wrong
-- I dont do rp, only with friends as a joke, but no serious roleplay.
-- i like maddie nolen alot
-- im not sensitive but if i get the feeling u hate me or you js straight up do hate me i will prolly disregard u nd any attempts u make at interacting w me beyond that lol (this also just really depends on my mood, try next tuesday idk crine emoji)
-- dniuf js usually means i dont feel like interacting w anyone but my friends, or im doing smthng nd dont wanna check messages, if i have dniuf nd u arent my friend nd int w me nd i'll js ignore u no big deal
-- im pretty evil on my github but im js protective over my really fragile emotions,, if u're just nice nd not on my dni i PROOOMMY we're cool nd i LOOOOOVE meeting new people
-- I talk ALOT in whispers if u whisper me i'll prolly talk my heart out just leave me on read if u dont feel like talking thats COMPLETELY FINE!!!!
+- I use slurs i can reclaim, not excessively but sometimes.
+- I make kys/kms/sh nd slightly edgy jokes, i also flirt and im mean to my friends **jokingly** if u dont like tell me
+- no need to use tonetags, if u need them tell
+- i'm ill mentally nd physically, i deal w it myself but it does affect my everyday life
+- im bad at getting close to people
+- im oblivious if u have issues with me address them
+- i dont do rp, only jokes with friends.
+- if im in a bad mood i prolly wont be talking
+- dniuf usually means im tired nd not feeling like talking
+- im a little mean sounding but just be cool and not on my dni nd we're cool i love and ADORE meeting new people i promise!! ^_^
 </details>
 
 <details>
   <summary> $\huge{\textsf{PONYTOWN}}$ </summary>
  <div align="left">
-  
-- **feelfree2 take inspo or whatevs ,,** it isnt rhat srs 2 me elohel (dont repost w/o credit idk
-- IF U DO TAKE INSPO pls share i wanna see it i love knowing people took inspo from me nd seeing what they came up with
-- if i dont answer,, $\large{\textsf{W2I}}$ i might be offtab or away from my screen
-- **C+H is always cool** even when im w my friennds C+H me twin... + **INT nd sign my [ata](https://mapletaffy.atabook.org/),** spamming/having a convo on my ata is fine
-- $\color{#6c2c3a}{\textup{matching ponies is so cool hi pls i love matching}}$
-- dont cover me unless u're c+hing or until i sit behind u pls thank
-</details>
 
+- **feel free 2 take inspo idk** it isnt that serious credit is optional i dooont caaare
+- if u do take inspo PLSSS share if u wanna i'm curious nd wanna see what u came up with
+- w2i i might b offtab or making ponies
+- c+h is always cool esp if ure a friend,, c+h me plsss,, also int (unless said otherwise) sign my [ata](https://mapletaffy.atabook.org/) always even when dniuf. spamming/having a convo on my ata is fine
+- dont cover me unless c+h or if i go behind u pls thank (i'll sit my fat ass ontop of u if u do grrr)
+- match ponies with me pretty pls
 <div align="center">
  
 $\Huge{\textsf{fandoms int}}$ 
 
 $\color{#b65425}{\textup{cookie run (obノcrk)⸝⸝ ⠀arcane⸝⸝ dandys world⸝⸝ ⠀transformers (mtmteノll}}$, tfoノpノa )⸝⸝ ⠀lps alive!!⸝⸝ ⠀dialtown⸝⸝ ⠀dsaf⸝⸝ ⠀ultrakill⸝⸝ ⠀madness combat⸝⸝ ⠀endzoneノLoT‎ *nd whatever fandom my pony is from*
-
-
-
-
-
- · · ─ ·ʚɞ· ─ · ·
- -
-<div align="center">
-<img src="https://64.media.tumblr.com/1c420854e663eca25e641e87091c53fd/8433ae5086b26f1d-3d/s400x600/f617ff7f9d6db021ca59a5c2674586dbae949998.pnj"width="800" height="300" /></p>
+</div align>
