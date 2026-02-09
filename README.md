@@ -50,8 +50,8 @@ $\color{#b65425}{\textup{cookie run (obノcrk)⸝⸝ ⠀arcane⸝⸝ dandys worl
  <div align="left">
   
 - I use slurs i can reclaim, not excessively but sometimes.
-- I make kys/kms/sh nd slightly edgy jokes, i also flirt and im mean to my friends **jokingly** if u dont like tell me
-- no need to use tonetags, if u need them tell
+- I make kys/kms/sh nd slightly edgy jokes, i also flirt and im mean to my friends **jokingly** if u dont like that tell me
+- no need to use tonetags for me, if u need them tell
 - i'm ill mentally nd physically, i deal w it myself but it does affect my everyday life
 - im bad at getting close to people
 - im oblivious if u have issues with me address them
