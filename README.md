@@ -1,7 +1,7 @@
 <div align="center">
 <img src="https://i.postimg.cc/4dR1pM5s/Untitled2436-20260209120947.png"width="800" height="600" /></p>
  
-  ![](https://komarev.com/ghpvc/?username=crackpawt&color=864446&style=plastic&label=🦐🦐)
+  ![](https://komarev.com/ghpvc/?username=crackpawt&color=a5130b&style=plastic&label=🦐🦐)
 
 
 <div align="center">
@@ -19,7 +19,7 @@
  
 $\Huge{\textsf{fandoms int}}$ 
 
-$\color{#b65425}{\textup{cookie run (obノcrk)⸝⸝ ⠀arcane⸝⸝ dandys world⸝⸝ ⠀transformers (mtmteノll}}$, tfoノpノa )⸝⸝ ⠀lps alive!!⸝⸝ ⠀dialtown⸝⸝ ⠀dsaf⸝⸝ ⠀ultrakill⸝⸝ ⠀madness combat⸝⸝ ⠀endzoneノLoT‎ *nd whatever fandom my pony is from*
+**cookie run (obノcrk)⸝⸝ ⠀arcane⸝⸝ dandys world⸝⸝ ⠀transformers (mtmteノll**, tfoノpノa )⸝⸝ ⠀lps alive!!⸝⸝ ⠀dialtown⸝⸝ ⠀dsaf⸝⸝ ⠀ultrakill⸝⸝ ⠀madness combat⸝⸝ ⠀endzoneノLoT‎ *nd whatever fandom my pony is from*
 </div align>
 </details>
 
@@ -41,7 +41,7 @@ $\color{#b65425}{\textup{cookie run (obノcrk)⸝⸝ ⠀arcane⸝⸝ dandys worl
 
 
  <div align="center">
-  $\color{#864446}{\textup{I BLOCK FREELY!!!!!}}$ idc if u didnt do anything idccc i block whoever i want ahahahahahahahahahaahahahah
+I BLOCK FREELY!!!!! idc if u didnt do anything idccc i block whoever i want ahahahahahahahahahaahahahah
 
 </details>
 
