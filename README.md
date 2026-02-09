@@ -61,4 +61,4 @@ $\color{#b65425}{\textup{cookie run (obノcrk)⸝⸝ ⠀arcane⸝⸝ dandys worl
 - im a little mean sounding but just be cool and not on my dni nd we're cool i love and ADORE meeting new people i promise!! ^_^
 </details>
 
-<p><img src="https://i.postimg.cc/ydfMTt1k/Untitled2437-20260209133645.png"width="800" height="600" /></p>
+<p><img src="https://i.postimg.cc/mgjhsZV5/Untitled2437-20260209134747.png"width="800" height="600" /></p>
