@@ -34,8 +34,6 @@ $\Huge{\textsf{fandoms int}}$
 - pro/darkshippers
 - hazbin/helluva fans / vivzie supporters
 - if u hate me or my friends doooont caaaareeeeeee
-  
-  (unless they're genuinely horrible, in this case inform me thank)
 - grok chatgpt ai slop users
 - people weirdly deep into the maddie nolen hate train /serious
 
@@ -56,6 +54,7 @@ I BLOCK FREELY!!!!! idc if u didnt do anything idccc i block whoever i want ahah
 - I use slurs i can reclaim, not excessively but sometimes.
 - I make kys/kms/sh nd slightly edgy jokes, i also flirt and im mean to *(a select few of my close)* friends **jokingly** if u dont like that tell me
 - no need to use tonetags for me, if u need them tell
+- even if on my dni u can talk to me if its smhng actually serious
 - i'm ill mentally nd physically, i deal w it myself but it does affect my everyday life
 - im bad at getting close to people
 - im oblivious if u have issues with me address them
