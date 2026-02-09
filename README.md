@@ -5,7 +5,23 @@
 
 
 <div align="center">
+<details>
+  <summary> $\huge{\textsf{PONYTOWN}}$ </summary>
+ <div align="left">
 
+- **feel free 2 take inspo idk** it isnt that serious credit is optional i dooont caaare
+- if u do take inspo PLSSS share if u wanna i'm curious nd wanna see what u came up with
+- w2i i might b offtab or making ponies
+- c+h is always cool esp if ure a friend,, c+h me plsss,, also int (unless said otherwise) sign my [ata](https://mapletaffy.atabook.org/) always even when dniuf. spamming/having a convo on my ata is fine
+- dont cover me unless c+h or if i go behind u pls thank (i'll sit my fat ass ontop of u if u do grrr)
+- match ponies with me pretty pls
+<div align="center">
+ 
+$\Huge{\textsf{fandoms int}}$ 
+
+$\color{#b65425}{\textup{cookie run (obノcrk)⸝⸝ ⠀arcane⸝⸝ dandys world⸝⸝ ⠀transformers (mtmteノll}}$, tfoノpノa )⸝⸝ ⠀lps alive!!⸝⸝ ⠀dialtown⸝⸝ ⠀dsaf⸝⸝ ⠀ultrakill⸝⸝ ⠀madness combat⸝⸝ ⠀endzoneノLoT‎ *nd whatever fandom my pony is from*
+</div align>
+</details>
 
 
 
@@ -45,19 +61,4 @@
 - im a little mean sounding but just be cool and not on my dni nd we're cool i love and ADORE meeting new people i promise!! ^_^
 </details>
 
-<details>
-  <summary> $\huge{\textsf{PONYTOWN}}$ </summary>
- <div align="left">
 
-- **feel free 2 take inspo idk** it isnt that serious credit is optional i dooont caaare
-- if u do take inspo PLSSS share if u wanna i'm curious nd wanna see what u came up with
-- w2i i might b offtab or making ponies
-- c+h is always cool esp if ure a friend,, c+h me plsss,, also int (unless said otherwise) sign my [ata](https://mapletaffy.atabook.org/) always even when dniuf. spamming/having a convo on my ata is fine
-- dont cover me unless c+h or if i go behind u pls thank (i'll sit my fat ass ontop of u if u do grrr)
-- match ponies with me pretty pls
-<div align="center">
- 
-$\Huge{\textsf{fandoms int}}$ 
-
-$\color{#b65425}{\textup{cookie run (obノcrk)⸝⸝ ⠀arcane⸝⸝ dandys world⸝⸝ ⠀transformers (mtmteノll}}$, tfoノpノa )⸝⸝ ⠀lps alive!!⸝⸝ ⠀dialtown⸝⸝ ⠀dsaf⸝⸝ ⠀ultrakill⸝⸝ ⠀madness combat⸝⸝ ⠀endzoneノLoT‎ *nd whatever fandom my pony is from*
-</div align>
