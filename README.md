@@ -35,9 +35,7 @@ $\Huge{\textsf{fandoms int}}$
 - hazbin/helluva fans / vivzie supporters
 - if u hate me or my friends doooont caaaareeeeeee
 - grok chatgpt ai slop users
-- people weirdly deep into the maddie nolen hate train /serious
-
-  (doesnt include people who js dont like her or hate her a normal amount)
+- people weirdly deep into the maddie nolen hate train /serious (doesnt include people who js dont like her or hate her a normal amount)
 - under 15
 <div align="left">
 
