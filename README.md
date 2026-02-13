@@ -61,7 +61,10 @@ I BLOCK FREELY!!!!! idc if u didnt do anything idccc i block whoever i want ahah
 - i dont do rp, only jokes with friends.
 - if im in a bad mood i prolly wont be talking
 - dniuf usually means im tired nd not feeling like talking
-- im a little mean sounding but just be cool and not on my dni nd we're cool i love and ADORE meeting new people i promise!! ^_^
+- if u play dw with me be patient my hands sieze up alot
+- im a little mean sounding but just be cool and not on my dni nd we're cool i love meeting new people i promise
+-  i kin nd yume characters shamelessly doubles r fine its gen whatever
+
 </details>
 
 
