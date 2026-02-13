@@ -1,7 +1,9 @@
 <div align="center">
-<img src="https://i.postimg.cc/d0tPTrrk/Untitled2436-20260209153714.png"width="800" height="600" /></p>
- 
-  ![](https://komarev.com/ghpvc/?username=crackpawt&color=a5130b&style=plastic&label=🦐🦐)
+<img src="https://i.postimg.cc/c4L0jRcH/Untitled2451-20260213213355.png"width="800" height="600" /></p>
+       
+   lescupio     +     pangndr .
+        
+  ![](https://komarev.com/ghpvc/?username=crackpawt&color=111217&style=plastic&label=🦐🦐)
 
 
 <div align="center">
@@ -62,4 +64,4 @@ I BLOCK FREELY!!!!! idc if u didnt do anything idccc i block whoever i want ahah
 - im a little mean sounding but just be cool and not on my dni nd we're cool i love and ADORE meeting new people i promise!! ^_^
 </details>
 
-<p><img src="https://i.postimg.cc/mgjhsZV5/Untitled2437-20260209134747.png"width="800" height="600" /></p>
+
