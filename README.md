@@ -13,11 +13,12 @@
 
 - **feel free 2 take inspo idk** it isnt that serious credit is optional i dooont caaare
 - if u do take inspo PLSSS share if u wanna i'm curious nd wanna see what u came up with
+- **i do not have an alt account** on github or on ponytown, anyone else with my ponies isnt me thanks
 - w2i i might b offtab or making ponies
 - c+h is always cool esp if ure a friend,, c+h me plsss,, also int (unless said otherwise) sign my [ata](https://mapletaffy.atabook.org/) always even when dniuf. spamming/having a convo on my ata is fine
 - dont cover me unless c+h or if i go behind u pls thank (i'll sit my fat ass ontop of u if u do grrr)
 - match ponies with me pretty pls
-- all duo/matching ponies (like my tw gourdy) is made with my friends, feel free to join in ofc
+- all duo/matching ponies (like my tw g free to join in ofcourdy) is made with my friends, feel
 <div align="center">
  
 $\Huge{\textsf{fandoms int}}$ 
