@@ -17,6 +17,7 @@
 - c+h is always cool esp if ure a friend,, c+h me plsss,, also int (unless said otherwise) sign my [ata](https://mapletaffy.atabook.org/) always even when dniuf. spamming/having a convo on my ata is fine
 - dont cover me unless c+h or if i go behind u pls thank (i'll sit my fat ass ontop of u if u do grrr)
 - match ponies with me pretty pls
+- all duo/matching ponies (like my tw gourdy) is made with my friends, feel free to join in ofc
 <div align="center">
  
 $\Huge{\textsf{fandoms int}}$ 
