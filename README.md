@@ -11,7 +11,7 @@
   <summary> $\huge{\textsf{PONYTOWN}}$ </summary>
  <div align="left">
 
-- **feel free 2 take inspo idk** it isnt that serious credit is optional i dooont caaare
+- **feel free 2 take inspo idk** it isnt that serious credit is optional (but appreciated) i dooont caaare
 - if u do take inspo PLSSS share if u wanna i'm curious nd wanna see what u came up with
 - **i do not have an alt account** on github or on ponytown, anyone else with my ponies isnt me thanks
 - w2i i might b offtab or making ponies
