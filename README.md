@@ -63,7 +63,7 @@ even if on my dni u can talk to me if its smhng i should really know about
 - i dont do rp, only jokes with friends.
 - if im in a bad mood i prolly wont be talking
 - dniuf usually means im tired nd not feeling like talking
-- if u play dw with me be patient my hands sieze up alot
+- i dont do background checks on ponytown mutuals,, if they happen to be in some kindof personal drama, leave me out of it,, if its genuine allegations inform me about it (with proof pref)
 - im a little mean sounding but just be cool and not on my dni nd we're cool i love meeting new people i promise
 -  i kin nd yume characters shamelessly doubles r fine its gen whatever
 
