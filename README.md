@@ -36,16 +36,17 @@ $\Huge{\textsf{fandoms int}}$
 
 - basic dni
 - pro/darkshippers
-- hazbin/helluva fans / vivzie supporters
+- hazbin/helluva fans, (even if u "dont support vivzie")
 - if u hate me or my friends doooont caaaareeeeeee
 - grok chatgpt ai slop users
 - people weirdly deep into the maddie nolen hate train /serious (doesnt include people who js dont like her or hate her a normal amount)
 - under 15
+- I BLOCK FREELY!!!!! idc if u didnt do anything idccc i block whoever i want ahahahahahahahahahaahahahah
 <div align="left">
 
 
  <div align="center">
-I BLOCK FREELY!!!!! idc if u didnt do anything idccc i block whoever i want ahahahahahahahahahaahahahah
+even if on my dni u can talk to me if its smhng i should really know about
 
 </details>
 
@@ -56,7 +57,6 @@ I BLOCK FREELY!!!!! idc if u didnt do anything idccc i block whoever i want ahah
 - I use slurs i can reclaim, not excessively but sometimes.
 - I make kys/kms/sh nd slightly edgy jokes, i also flirt and im mean to *(a select few of my close)* friends **jokingly** if u dont like that tell me
 - no need to use tonetags for me, if u need them tell
-- even if on my dni u can talk to me if its smhng actually serious
 - i'm ill mentally nd physically, i deal w it myself but it does affect my everyday life
 - im bad at getting close to people
 - im oblivious if u have issues with me address them
