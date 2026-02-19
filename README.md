@@ -60,7 +60,7 @@ this sections a little long oops
 - I use slurs i can reclaim, not excessively but sometimes.
 - I make kys/kms/sh nd slightly edgy jokes, i also ironicslly flirt and im mean to friends, if uncomfortable tell me
 - **i dont do background checks on ponytown mutuals or random people i sit with,,**  i put my trust in them to follow my dni and be a decent person. if they happen to be in some kindof personal drama, leave me out of it,, if its genuine allegations or theyre a horrible person inform me about it (with proof pref) if u dont like that tell me
-- no need to use tonetags for me, if u need them tell
+- i dont always use tonetags by default really,, tell me if u need them
 - i'm ill mentally nd physically, i deal w it myself but it does affect my everyday life
 - im bad at getting close to people
 - im oblivious if u have issues with me address them
