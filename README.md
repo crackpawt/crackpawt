@@ -52,10 +52,14 @@ even if on my dni u can talk to me if its smhng i should really know about
 
 <details>
   <summary> $\huge{\textsf{B4 U INT}}$ </summary>
+       
+this sections a little long oops
+       
  <div align="left">
   
 - I use slurs i can reclaim, not excessively but sometimes.
-- I make kys/kms/sh nd slightly edgy jokes, i also flirt and im mean to *(a select few of my close)* friends **jokingly** if u dont like that tell me
+- I make kys/kms/sh nd slightly edgy jokes, i also ironicslly flirt and im mean to friends, if uncomfortable tell me
+- **i dont do background checks on ponytown mutuals or random people i sit with,,**  i put my trust in them to follow my dni and be a decent person. if they happen to be in some kindof personal drama, leave me out of it,, if its genuine allegations or theyre a horrible person inform me about it (with proof pref) if u dont like that tell me
 - no need to use tonetags for me, if u need them tell
 - i'm ill mentally nd physically, i deal w it myself but it does affect my everyday life
 - im bad at getting close to people
@@ -63,7 +67,6 @@ even if on my dni u can talk to me if its smhng i should really know about
 - i dont do rp, only jokes with friends.
 - if im in a bad mood i prolly wont be talking
 - dniuf usually means im tired nd not feeling like talking
-- i dont do background checks on ponytown mutuals,, if they happen to be in some kindof personal drama, leave me out of it,, if its genuine allegations inform me about it (with proof pref)
 - im a little mean sounding but just be cool and not on my dni nd we're cool i love meeting new people i promise
 -  i kin nd yume characters shamelessly doubles r fine its gen whatever
 
