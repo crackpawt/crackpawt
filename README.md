@@ -12,7 +12,7 @@
  <div align="left">
 
 - **feel free 2 take inspo idk** it isnt that serious credit is optional (but appreciated) i dooont caaare
-- if u do take inspo PLSSS share if u wanna i'm curious nd wanna see what u came up with
+- PLEASSEEE dont directly copy tho cries im asking so so nicely,, atleast w/o credit ok ty cries
 - **i do not have an alt account** on github or on ponytown, anyone else with my ponies isnt me thanks
 - w2i i might b offtab or making ponies
 - c+h is always cool esp if ure a friend,, c+h me plsss,, also int (unless said otherwise) sign my [ata](https://mapletaffy.atabook.org/) always even when dniuf. spamming/having a convo on my ata is fine
