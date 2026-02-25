@@ -41,6 +41,7 @@ $\Huge{\textsf{fandoms int}}$
 - grok chatgpt ai slop users
 - people weirdly deep into the maddie nolen hate train /serious (doesnt include people who js dont like her or hate her a normal amount)
 - under 15
+- "n1 (a character i like) fan" iwec let me like a character w/o having to constantly acknowledge ur likeness for them too
 - I BLOCK FREELY!!!!! idc if u didnt do anything idccc i block whoever i want ahahahahahahahahahaahahahah
 <div align="left">
 
