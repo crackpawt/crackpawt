@@ -63,9 +63,8 @@ this sections a little long oops
 - i'm ill mentally nd physically, i deal w it myself but it does affect my everyday life
 - im bad at getting close to people
 - im oblivious if u have issues with me address them
-- i dont do rp, only jokes with friends.
+- i dont do rp.
 - if im in a bad mood i prolly wont be talking
-- dniuf usually means im tired nd not feeling like talking
 - im a little mean sounding but just be cool and not on my dni nd we're cool i love meeting new people i promise
 -  i kin nd yume characters shamelessly doubles r fine its gen whatever
 
