@@ -40,6 +40,7 @@ $\Huge{\textsf{fandoms int}}$
 - people weirdly deep into the maddie nolen hate train /serious (doesnt include people who js dont like her a normal amount)
 - under 15
 - "n1 (a character i like) fan" iwec let me like a character w/o having to constantly acknowledge ur likeness for them too
+- kindoubles iwec idm other people kinning the same charcters i think its cool but some of y'all r too much bruh
 - I BLOCK FREELY!!!!! idc if u didnt do anything idccc i block whoever i want ahahahahahahahahahaahahahah
 <div align="left">
 
@@ -66,8 +67,7 @@ this sections a little long oops
 - i dont do rp.
 - if im in a bad mood i prolly wont be talking
 - im a little mean sounding but just be cool and not on my dni nd we're cool i love meeting new people i promise
--  i kin nd yume characters shamelessly doubles r fine its gen whatever
-
+-  i kin nd yume characters shamelessly
 </details>
 
 
