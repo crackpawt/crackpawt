@@ -1,7 +1,12 @@
 <div align="center">
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Gravitas+One&pause=1000&color=661929&width=435&lines=theres+alot+on+this+github)](https://git.io/typing-svg)
+</div>
+       
+<div align="center">
 <img src="https://i.postimg.cc/sx9xzwm7/Untitled2466-20260219002645.png"width="400" height="600" /></p>
        
-   lescupio     +     pangndr .
+   lescupio     +     pangndr
         
   ![](https://komarev.com/ghpvc/?username=crackpawt&color=111217&style=plastic&label=🦐🦐)
 
