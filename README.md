@@ -16,6 +16,7 @@
 - **i do not have an alt account** on github or on ponytown, anyone else with my ponies isnt me thanks
 - w2i i might b offtab or making ponies
 - c+h is always cool esp if ure a friend,, c+h me plsss,, also int (unless said otherwise) sign my [ata](https://mapletaffy.atabook.org/) always even when dniuf. spamming/having a convo on my ata is fine
+- i fall asleep on ponytown alot,, and im usually on mobile sleeping so i might start moving around my bad oops...
 - match ponies with me pretty pls
 - all duo/matching ponies (like my tw gourdy) is w my friends , feelfree to join in ofc 
 <div align="center">
