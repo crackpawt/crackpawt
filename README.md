@@ -18,6 +18,7 @@ lescupio     +     pangndr
 - **i do not have an alt account** on github or on ponytown, anyone else with my ponies isnt me thanks
 - c+h is always cool esp if ure a friend,, c+h me plsss,, also int (unless said otherwise) sign my [ata](https://mapletaffy.atabook.org/) always even when dniuf. spamming/having a convo on my ata is fine
 - match ponies with me pretty pls
+- im offtab or playing alot,, i might disconnect nd alot of times miss whispers JUST KNOW I APPRECIATE ALL THE CROWNS even if i see them late,, if i find u again i will say thank you
 - all duo/matching ponies is w my friends , feelfree to join in ofc 
 <div align="center">
  
