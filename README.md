@@ -1,11 +1,11 @@
 <div align="center">
-<img src="https://i.postimg.cc/sx9xzwm7/Untitled2466-20260219002645.png"width="400" height="600" /></p>
+<img src="https://files.catbox.moe/e480bt.png"width="400" height="600" /></p>
 
 Memppu , Molly
 
 lescupio     +     pangndr
         
-  ![](https://komarev.com/ghpvc/?username=crackpawt&color=111217&style=plastic&label=🦐🦐)
+  ![](https://komarev.com/ghpvc/?username=crackpawt&color=111217&style=plastic&label=🦴)
 
 
 <div align="center">
