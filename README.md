@@ -68,7 +68,6 @@ this sections a little long oops
 - i kin nd yume characters shamelessly
   
  <div align="center">
-even if on my dni u can talk to me if its smhng i should really know about
         
  im a little mean sounding but just be cool and not on my dni nd we're cool i love meeting new people i promise
  
