@@ -16,7 +16,7 @@ lescupio     +     pangndr
 - **feel free 2 take inspo idk** it isnt that serious credit is optional (but appreciated) i dooont caaare
 - my gifted maple pony is made by @strin-g it makes great ponies i appreciate
 - PLEASSEEE dont directly copy tho cries im asking so so nicely,, atleast w/o credit ok ty cries
-- pls dont cover me ok? ok thanks
+- pls dont cover me or i'll sit ontop of you
 - c+h is always cool esp if ure a friend,, c+h me plsss,, also int (unless said otherwise) sign my [ata](https://mapletaffy.atabook.org/) always even when dniuf. spamming/having a convo on my ata is fine
 - match ponies with me pretty pls
 - im offtab alot,, i might disconnect nd miss whispers, just know i very much appreciate all compliments even if i see them late,, if i find u again i'll say thank you
