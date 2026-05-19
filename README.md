@@ -10,7 +10,7 @@ c + h 　w2i　 offtab alot
 <div align="center">
 
 <details>
-  <summary> $\huge{\textsf{DO NOT INT}}$ </summary>
+  <summary> $\huge{\textsf{DNI}}$ </summary>
  <div align="left">
 
 - basic dni
@@ -22,15 +22,10 @@ c + h 　w2i　 offtab alot
 - kindoubles iwec idm other people kinning the same charcters i think its cool but some of y'all r too much bruh
 - I block freely idc if u didnt do anything idccc i block whoever i want
 <div align="left">
-
-
- <div align="center">
-even if on my dni u can talk to me if its smhng i should really know about
-
 </details>
 
 <details>
-  <summary> $\huge{\textsf{B4 U INT}}$ </summary>
+  <summary> $\huge{\textsf{BYI}}$ </summary>
        
  <div align="left">
   
@@ -45,11 +40,11 @@ even if on my dni u can talk to me if its smhng i should really know about
   
  <div align="center">
         
- im a little mean sounding but just be cool and not on my dni nd we're cool i love meeting new people i promise
+ im a little mean sounding but just be cool and not on my dni nd we're prolly cool
  
- $\Huge{\textsf{fandoms int}}$ 
 
-**cookie run (obノcrk)⸝⸝ ⠀arcane⸝⸝ dandys world⸝⸝ ⠀transformers (mtmteノll**, tfoノpノa )⸝⸝ ⠀lps alive⸝⸝ ⠀dialtown⸝⸝ ⠀dsaf⸝⸝ ⠀ultrakill⸝⸝ ⠀madness combat⸝⸝ ⠀endzoneノLoT‎ *nd whatever fandom my pony is from*
+
+crk/crob dw mtmte dmmd arcn dialtown dsaf ultrakill madcom ez/LoT
  
 </details>
 
