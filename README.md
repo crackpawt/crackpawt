@@ -1,11 +1,11 @@
 <div align="center">
-<img src="https://i.postimg.cc/sfMLn1Cv/IMG-7619.jpg"width="500" height="500" /></p>
-
-Memppu , Maple , Molly
-
-lescupio     +     pangndr
         
-  ![](https://komarev.com/ghpvc/?username=crackpawt&color=111217&style=plastic&label=🦴)
+![](https://komarev.com/ghpvc/?username=crackpawt&color=ffc8ff&style=plastic&label=🦴)
+<div align="center">  
+        <img src="https://files.catbox.moe/w7rdjk.png"width="600">
+         <img src="https://files.catbox.moe/skcav1.png"width="500" height="30">
+
+
 
 
 <div align="center">
