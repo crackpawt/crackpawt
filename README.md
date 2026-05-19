@@ -11,7 +11,7 @@
 <div align="center">
 
 <details>
-  <summary> $\huge{\textsf{DNI}}$ </summary>
+  <summary> <img src="https://files.catbox.moe/7jz556.png"width="60">$\huge{\textsf{}}$ </summary>
  <div align="left">
 
 - basic dni
@@ -26,7 +26,7 @@
 </details>
 
 <details>
-  <summary> $\huge{\textsf{BYI}}$ </summary>
+  <summary> <img src="https://files.catbox.moe/u3xxl5.png"width="60">$\huge{\textsf{}}$ </summary>
        
  <div align="left">
   
