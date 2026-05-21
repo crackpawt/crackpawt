@@ -20,7 +20,7 @@
 - if u hate me or my friends doooont caaaareeeeeee
 - people weirdly deep into the maddie nolen hate train /serious
 - under 15 iwec
-- kindoubles iwec idm other people kinning the same charcters i think its cool but some of y'all r too much bruh
+- kindoubles iwec
 - I block freely idc if u didnt do anything idccc i block whoever i want
 <div align="left">
 </details>
