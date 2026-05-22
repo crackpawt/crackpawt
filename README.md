@@ -15,10 +15,8 @@
  <div align="left">
 
 - basic dni
-- pro/darkshippers
 - hazbin/helluva fans, (even if u "dont support vivzie")
 - if u hate me or my friends doooont caaaareeeeeee
-- people weirdly deep into the maddie nolen hate train /serious
 - under 15 iwec
 - kindoubles iwec
 - I block freely idc if u didnt do anything idccc i block whoever i want
@@ -34,7 +32,6 @@
 - I make kys/kms/sh nd slightly edgy jokes, im also ironicslly mean to friends + flirt, if uncomfortable tell me
 - **i dont do background checks on ponytown mutuals or random people i sit with,,**  i put my trust in them to follow my dni and be a decent person. leave me out of personal drama nd if its genuine allegations inform me about it
 - im bad at getting close to people
-- im oblivious if u have issues with me address them
 - i dont do rp.
 - if im in a bad mood i prolly wont be talking
 - i kin nd yume characters shamelessly
