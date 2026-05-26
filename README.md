@@ -35,6 +35,7 @@
 - i dont do rp.
 - if im in a bad mood i prolly wont be talking
 - i kin nd yume characters shamelessly
+- i dont only like aoba, i js rly like aoba ok ok
   
  <div align="center">
         
