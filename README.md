@@ -7,4 +7,4 @@
 
 <div align="center">
 
-[rentry](https://i.postimg.cc/nVP9Tpgk/cooltext509824988110201.png) ‎  ‎ ‎ ‎  [ata](https://mapletaffy.atabook.org/)
+[rentry](https://rentry.co/dramatical-murder) ‎  ‎ ‎ ‎  [ata](https://mapletaffy.atabook.org/)
