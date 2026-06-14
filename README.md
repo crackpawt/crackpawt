@@ -7,4 +7,4 @@
 
 <div align="center">
 
-[rentry](https://rentry.co/dramatical-murder) ‎  ‎ ‎ ‎  [ata](https://mapletaffy.atabook.org/) ‎  ‎ ‎ ‎  [listography](https://listography.com/dramaticalmurder)
+[ata](https://mapletaffy.atabook.org/) ‎  ‎ ‎ ‎  [listography](https://listography.com/dramaticalmurder)
