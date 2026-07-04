@@ -7,4 +7,4 @@
 
 <div align="center">
 
-[ata](https://mapletaffy.atabook.org/) ‎  ‎ ‎ ‎  [listography](https://listography.com/dramaticalmurder) ‎  ‎ ‎ ‎  [cute](https://rentry.co/catboymink)
+[ata](https://seii.atabook.org/) ‎  ‎ ‎ ‎  [listography](https://listography.com/dramaticalmurder) ‎  ‎ ‎ ‎  [cute](https://rentry.co/catboymink)
