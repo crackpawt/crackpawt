@@ -1,5 +1,7 @@
 <div align="center">
         
+[extra cute stuff](https://rentry.co/catboymink)
+        
 ![](https://komarev.com/ghpvc/?username=crackpawt&color=75D0F4&style=plastic&label=🦴) 
 <div align="center">
         <img src="https://i.postimg.cc/7YNd4mzp/Untitled2731-20260610020953.png"width="200"> 
