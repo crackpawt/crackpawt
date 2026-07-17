@@ -1,11 +1,10 @@
 <div align="center">
         
-[extra cute stuff](https://rentry.co/catboymink)
+[extra](https://rentry.co/catboymink)
         
-![](https://komarev.com/ghpvc/?username=crackpawt&color=75D0F4&style=plastic&label=🦴) 
+![](https://komarev.com/ghpvc/?username=crackpawt&color=ccc9ab&style=plastic&label=🦴) 
 <div align="center">
-        <img src="https://i.postimg.cc/7YNd4mzp/Untitled2731-20260610020953.png"width="200"> 
-         <img src="https://i.postimg.cc/9MNK6Mqb/Untitled2732-20260610021620.png"width="250">
+        <img src="https://i.postimg.cc/4N9vDj1t/IMG-9357.jpg"width="300"> 
 
 <div align="center">
 
